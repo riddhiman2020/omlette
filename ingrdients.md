@@ -1,0 +1,1 @@
+2 eggs(for 2 persons), onion, green chille, salt for taste, black peper, vegetable oil, corriander
